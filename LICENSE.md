@@ -1,4 +1,4 @@
-# 
+# exclusive nft mint bot | mint-detection + rarity-analysis offers the most advanced nft mint bot, with mint-detection and rarity-analysis. Ideal for professional NFT traders and
 
 
 
